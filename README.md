@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Habishek
-- 🌱 I’m currently pursuing 1st year as an AIML engineer
+- 🌱 I’m currently pursuing 2nd year as an AIML engineer
 - 💞️ I’m looking to collaborate on new startups
 - 📫 my phone number- 6381869827
 
